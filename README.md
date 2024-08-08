@@ -1,6 +1,6 @@
 - 👋 Hi, I’m **Adenice**
 - 👀 I’m interested in:Carros,Música
-- 🌱 I’m currently learning:Dirigir, tecnologia
+- 🌱 I’m currently learning:Dirigir é tecnologia
 - 😄 Pronouns:Ela/Dela
 - ⚡ Fun fact:não sei 
 
