@@ -1,5 +1,5 @@
 - 👋 Hi, I’m **Adenice**
-- 👀 I’m interested in:Carros,Música
+- 👀 I’m interested in:Carros, Música
 - 🌱 I’m currently learning:tecnologia
 - 😄 Pronouns:Ela/Dela
 - ⚡ Fun fact:não sei 
